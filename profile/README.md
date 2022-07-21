@@ -1,1 +1,3 @@
 ### Thanks to Orwennes, Dr. Bright, Ryan, openglfreak, Thomas, liq, Amy, William, Sigge, Varris, nvaert1986, Eduard, Justin, Oscar, frankbaier, Jon, Sasamus, darkmaster879, redgloboli, flightlessmango, IroAlexis, gardotd426, Gabe E, Vitalwonhyo, Glorious Eggroll, Hans-Kristian, Anisan, Jonny Teronni, Zs. Cs. Sz., JudgeVanadium, Lutris, Oli, Fábio, Bill, Kristoffer, Typhoon, Ole Erik, Stephan, contributors, and all anonymous Patrons, supporters and curious minds! You're giving driving energy and purpose to my work. Much frog love to all of you guys :frog: :frog: :frog: :heart: :heart: :heart:
+
+**Feel free to join the Frogging Family discord server : https://discord.gg/jRy3Nxk**
